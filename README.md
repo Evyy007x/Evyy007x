@@ -1,6 +1,6 @@
-Boas vindas ao meu perfil 💙💙
+Boas vindas ao meu perfil
 
-Meu nome é Yasmin Alves
+Meu nome é carlos daniel 
 
 Estou estudando na Alura
 
